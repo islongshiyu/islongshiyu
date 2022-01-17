@@ -1,4 +1,4 @@
 - 👋 2018/07/01 Start coding in Gayhub.
 - 👀 2019/11/21 Start blogging with hexo.
 - 💞️ 2021/12/02 I have a beautiful daughter!!!!
-- 🌱 2021/12/15 I got a new Nintendo Switch from my sister and started the Ring Fit Adventure.
+- 🌱 2021/12/15 I got a new Nintendo Switch and started the Ring Fit Adventure Again.
